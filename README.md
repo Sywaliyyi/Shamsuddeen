@@ -1,2 +1,2 @@
 # Shamsuddeen
-I am new to programming want learn a lot through this big community
+I am new in to programming want learn a lot through this big community
